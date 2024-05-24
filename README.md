@@ -6,4 +6,7 @@ Meu nome é Maria Clara
 - Estou me desenvolvimento na linguagem JavaScript
 - Utilizo esse espaço para minha organiza e compartilhamento dos seus projeto desenvolvidos
 
-- ### Voc
+- ### Você entrar em contato comigo
+
+- 0001128542286sp.@al.educacao.sp.gov.br
+- 0001128542286sp.@al.educacao.sp.gov.br
